@@ -1,4 +1,4 @@
-if you are getting rendering error then some of your extenction is making problem like 
-extenction - internet downloading manager 
+if you are getting rendering errors then some of your extinctions are making problems like 
+extinction - internet downloading manager 
 
-note - please off your extenction to view resume
+note - please off your extinction to view my resume if you are having any problem
